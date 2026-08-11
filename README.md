@@ -3,7 +3,7 @@
 
 Email Me 👉 ✉️ **nutaningawale347@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently working with:** Deepminds Infotech Private
+- 🔭 **I’m currently working with:** Rising Phoenix Infotech Solutions
 - 📫 **How to reach me:** nutaningawale347@gmail.com
 - 😄 **Pronouns:** Nutan Ingawale
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
